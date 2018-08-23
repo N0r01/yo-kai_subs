@@ -3,13 +3,13 @@
 
 |episode|title| Dailymotion | Vimeo |
 |-------|-----|----------|---------|
-|movie 4 part 1||<https://www.dailymotion.com/video/x6obvyw>|<https://vimeo.com/279521323>|
-|movie 4 part 2||<https://www.dailymotion.com/video/x6propk>|<https://vimeo.com/279524455>|
-|episode 1-2|Ghost Gang Leader/Bicycle Ridden by the Dead|<https://www.dailymotion.com/video/x6ndrl9>||
-|episode 3|Plundering Demon Red Head|<https://www.dailymotion.com/video/x6sgeyc>||
-|episode 4|What A Waste Man|<https://www.dailymotion.com/video/x6jy5vh>||
-|episode 5|An Anatomical Model in Love|<https://www.dailymotion.com/video/x6jy2go>||
-|episode 6|Smiling Dog Man|<https://www.dailymotion.com/video/x6jy6vp>||
+|movie 4 part 1|Revival of the Oni King|<https://www.dailymotion.com/video/x6obvyw>|<https://vimeo.com/279521323>|
+|movie 4 part 2|Revival of the Oni King|<https://www.dailymotion.com/video/x6propk>|<https://vimeo.com/279524455>|
+|episode 1-2|Ghost Gang Leader/Bicycle Ridden by the Dead|<https://www.dailymotion.com/video/x6ndrl9>|<https://vimeo.com/286334597>|
+|episode 3|Plundering Demon Red Head|<https://www.dailymotion.com/video/x6sgeyc>|<https://vimeo.com/286334797>|
+|episode 4|What A Waste Man|<https://www.dailymotion.com/video/x6jy5vh>|(coming soon!)|
+|episode 5|An Anatomical Model in Love|<https://www.dailymotion.com/video/x6jy2go>|(coming soon!)|
+|episode 6|Smiling Dog Man|<https://www.dailymotion.com/video/x6jy6vp>|(coming soon!)|
 |episode 7|Splitting Face Woman|<https://www.dailymotion.com/video/x6la45z>|<https://vimeo.com/273885041>|
 |episode 8|Almighty’s Uprising|<https://www.dailymotion.com/video/x6md3ay>|<https://vimeo.com/276145628>|
 |episode 9|It Is Called a Man-eating Tuna|<https://www.dailymotion.com/video/x6n4s1y>|<https://vimeo.com/277627819>|
@@ -21,3 +21,11 @@
 |episode 15|A Cute Girl Who Comes Every One Hundred Thousand Years|<https://www.dailymotion.com/video/x6qb1y9>|<https://vimeo.com/281901796>|
 |episode 16|A Deadly Swim in the Ocean|<https://www.dailymotion.com/video/x6s8je6>|<https://vimeo.com/285674977>|
 |episode 17|The Cursed Fox and the Ouija Board|<https://www.dailymotion.com/video/x6sgfi2>|<https://vimeo.com/286060669>|
+
+
+
+
+### Want to download these episodes via torrents instead? 
+Be sure you have a bittorrent client installed. Here's one you can use: <https://www.utorrent.com/>
+
+Then, download these in Nyaa.si: <https://nyaa.si/?f=0&c=0_0&q=Youkai+Watch+Shadowside+>
