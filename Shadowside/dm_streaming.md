@@ -21,7 +21,7 @@
 |episode 15|A Cute Girl Who Comes Every One Hundred Thousand Years|<https://www.dailymotion.com/video/x6qb1y9>|<https://vimeo.com/281901796>|
 |episode 16|A Deadly Swim in the Ocean|<https://www.dailymotion.com/video/x6s8je6>|<https://vimeo.com/285674977>|
 |episode 17|The Cursed Fox and the Ouija Board|<https://www.dailymotion.com/video/x6sgfi2>|<https://vimeo.com/286060669>|
-
+|episode 18|Face Thief|<https://www.dailymotion.com/video/x6sra8e>|<https://vimeo.com/287071993>|
 
 
 
