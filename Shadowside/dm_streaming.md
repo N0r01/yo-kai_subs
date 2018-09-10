@@ -22,7 +22,7 @@
 |episode 16|A Deadly Swim in the Ocean|<https://www.dailymotion.com/video/x6s8je6>|<https://vimeo.com/285674977>|
 |episode 17|The Cursed Fox and the Ouija Board|<https://www.dailymotion.com/video/x6sgfi2>|<https://vimeo.com/286060669>|
 |episode 18|Face Thief|<https://www.dailymotion.com/video/x6sra8e>|<https://vimeo.com/287071993>|
-
+|episode 19|Cicada’s Semifinal Counterattack|<https://www.dailymotion.com/video/x6tdjf9>|<https://vimeo.com/289016626>|
 
 
 ### Want to download these episodes via torrents instead? 
