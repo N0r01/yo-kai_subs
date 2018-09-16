@@ -23,7 +23,7 @@
 |episode 17|The Cursed Fox and the Ouija Board|<https://www.dailymotion.com/video/x6sgfi2>|<https://vimeo.com/286060669>|
 |episode 18|Face Thief|<https://www.dailymotion.com/video/x6sra8e>|<https://vimeo.com/287071993>|
 |episode 19|Cicada’s Semifinal Counterattack|<https://www.dailymotion.com/video/x6tdjf9>|<https://vimeo.com/289016626>|
-
+|episode 20|The Phantom Theater Room 0|<https://www.dailymotion.com/video/x6toqcn>|<https://vimeo.com/290102089>|
 
 ### Want to download these episodes via torrents instead? 
 Be sure you have a bittorrent client installed. Here's one you can use: <https://www.utorrent.com/>
