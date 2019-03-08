@@ -27,6 +27,7 @@
 |episode 21|Revive! Kenbumajin Suzaku!|<https://www.dailymotion.com/video/x6tstv7>|<https://vimeo.com/290469804>|
 |episode 22|Touma and the Oni King’s Fragment|<https://www.dailymotion.com/video/x733rny>|<https://vimeo.com/320118984>|
 |episode 23|The Dark Clinical Records of Doctor C|<https://www.dailymotion.com/video/x73g6o7>|<https://vimeo.com/321051568>|
+|episode 24|The Dreaming Hana Poncho|<https://www.dailymotion.com/video/x73rcfg>|<https://vimeo.com/322240398>|
 
 ### Want to download these episodes via torrents instead? 
 Be sure you have a bittorrent client installed. Here's one you can use: <https://www.utorrent.com/>
