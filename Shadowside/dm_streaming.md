@@ -31,6 +31,7 @@
 |episode 25|Farewell, Micchi|<https://www.dailymotion.com/video/x743kn2>|<https://vimeo.com/323367903>|
 |episode 26|The Demonic Man-Eating Toilet|<https://www.dailymotion.com/video/x749mvc>|<https://vimeo.com/324181914>|
 |episode 27|The Wandering Komajiro|<https://www.dailymotion.com/video/x74ds0g>|<https://vimeo.com/324851403>|
+|episode 28|The Cursed AI Assistant|<https://www.dailymotion.com/video/x74vzp7>|<https://vimeo.com/326943769>|
 
 ### Want to download these episodes via torrents instead? 
 Be sure you have a bittorrent client installed. Here's one you can use: <https://www.utorrent.com/>
