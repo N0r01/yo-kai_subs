@@ -32,6 +32,10 @@
 |episode 26|The Demonic Man-Eating Toilet|<https://www.dailymotion.com/video/x749mvc>|<https://vimeo.com/324181914>|
 |episode 27|The Wandering Komajiro|<https://www.dailymotion.com/video/x74ds0g>|<https://vimeo.com/324851403>|
 |episode 28|The Cursed AI Assistant|<https://www.dailymotion.com/video/x74vzp7>|<https://vimeo.com/326943769>|
+|episode 29|The Bloody Clover of Tragedy|<https://www.dailymotion.com/video/x75379r >|<https://vimeo.com/327657262>|
+|episode 30|Ayame’s Fall|<https://www.dailymotion.com/video/x773moq>|<https://vimeo.com/333501606>|
+|episode 31|A Fierce Duel! Suzaku vs. Genbu|<https://www.dailymotion.com/video/x773mp5>|<https://vimeo.com/333501576>|
+|episode 32|The Life-Eating Jorougumo|<https://www.dailymotion.com/video/x773mpd>|<https://vimeo.com/333501583>|
 
 ### Want to download these episodes via torrents instead? 
 Be sure you have a bittorrent client installed. Here's one you can use: <https://www.utorrent.com/>
