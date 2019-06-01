@@ -36,6 +36,7 @@
 |episode 30|Ayame’s Fall|<https://www.dailymotion.com/video/x773moq>|<https://vimeo.com/333501606>|
 |episode 31|A Fierce Duel! Suzaku vs. Genbu|<https://www.dailymotion.com/video/x773mp5>|<https://vimeo.com/333501576>|
 |episode 32|The Life-Eating Jorougumo|<https://www.dailymotion.com/video/x773mpd>|<https://vimeo.com/333501583>|
+|episode 33|The Absentminded Satan Claus|<https://www.dailymotion.com/video/x77i96d>|<https://vimeo.com/334338638>|
 
 ### Want to download these episodes via torrents instead? 
 Be sure you have a bittorrent client installed. Here's one you can use: <https://www.utorrent.com/>
