@@ -37,6 +37,9 @@
 |episode 31|A Fierce Duel! Suzaku vs. Genbu|<https://www.dailymotion.com/video/x773mp5>|<https://vimeo.com/333501576>|
 |episode 32|The Life-Eating Jorougumo|<https://www.dailymotion.com/video/x773mpd>|<https://vimeo.com/333501583>|
 |episode 33|The Absentminded Satan Claus|<https://www.dailymotion.com/video/x77i96d>|<https://vimeo.com/334338638>|
+|episode 34|The Yo-kai Detective Agency with Just the Yo-kai|<https://www.dailymotion.com/video/x7admde>|<https://vimeo.com/340584099>|
+|episode 35|The Weeping Ballet Shoes|<https://www.dailymotion.com/video/x7pjul3>|<https://vimeo.com/381207681>|
+|episode 36|A Very Shadowside Christmas|<https://www.dailymotion.com/video/x7pjule>|<https://vimeo.com/381207741>|
 
 ### Want to download these episodes via torrents instead? 
 Be sure you have a bittorrent client installed. Here's one you can use: <https://www.utorrent.com/>
